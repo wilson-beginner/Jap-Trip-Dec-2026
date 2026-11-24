@@ -1,0 +1,1 @@
+# kyushu-trip-2026
